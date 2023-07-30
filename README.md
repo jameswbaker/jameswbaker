@@ -1,8 +1,7 @@
-### HEYYOOOOO ฅ^•ﻌ•^ฅ
+### HI ฅ^•ﻌ•^ฅ
 
 My name is ᴊᴀᴍᴇꜱ ʙᴀᴋᴇʀ
-I am a sophomore (co2025) majoring in Computer Science and Music.
-I love to go outside in nature, lift, produce music, and eat fajitas.
-Nom nom. 
+CS & Music @ Penn 2025
+Interested in mathematical models, data science, UI/UX
 
 (ﾉ◕ヮ◕)ﾉ*:・ﾟ✧
