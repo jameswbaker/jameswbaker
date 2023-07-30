@@ -1,6 +1,6 @@
 ### HI ฅ^•ﻌ•^ฅ
 
-My name is ᴊᴀᴍᴇꜱ ʙᴀᴋᴇʀ
+I'm ᴊᴀᴍᴇꜱ ʙᴀᴋᴇʀ
 
 CS & Music @ Penn 2025
 
