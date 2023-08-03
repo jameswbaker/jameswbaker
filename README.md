@@ -1,3 +1,3 @@
 CS & Music @ Penn 2025
 
-Interested in mathematical models, data science, UI/UX
+Interested in math, data science, UI/UX
